@@ -1,0 +1,2 @@
+# danificada
+no seu coração
